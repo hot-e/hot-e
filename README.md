@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hot-e
 - 👀 I’m interested in ... girl who's deeply inlove with me 
-- 🌱 I’m currently learning ... stem 11
+- 🌱 I’m currently learning ... stem strand
 - 💞️ I’m looking to collaborate on ... something with my girl 
 - 📫 How to reach me ... talk to my baby
 - 😄 Pronouns: ... Hottie
